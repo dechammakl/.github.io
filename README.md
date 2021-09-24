@@ -1,1 +1,0 @@
-# dech.github.io
